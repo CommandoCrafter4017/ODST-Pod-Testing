@@ -7,7 +7,7 @@ https://web.roblox.com/games/6686145546/ODST-Pod-Testing
 
 **IMPORTANT LINKS FOR OTHER COOL STUFF**
 
-CREDITS
+**CREDITS**
 
 https://docs.google.com/document/d/1Tp0sooA0_4BG-uEDyFYRYN3vJCApINuVgCWRiq8w5dM/edit?usp=sharing
 
