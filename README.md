@@ -7,11 +7,11 @@ https://web.roblox.com/games/6686145546/ODST-Pod-Testing
 
 **IMPORTANT LINKS FOR OTHER COOL STUFF**
 
-*Updates*
-
 CREDITS
 
 https://docs.google.com/document/d/1Tp0sooA0_4BG-uEDyFYRYN3vJCApINuVgCWRiq8w5dM/edit?usp=sharing
+
+*Updates*
 
 (the actual updates pdf that is in the files n crap will only change once like every 2-ish months.)
 
