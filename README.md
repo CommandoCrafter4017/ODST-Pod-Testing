@@ -15,7 +15,7 @@ https://docs.google.com/document/d/1UUcicEvMcqDo1F9hY9QWScE8VPLAVlbVjyWg8Uk5J_I/
 
 *Manual*
 
-(once again, the manual changes only like once every 2-ish months to accomodate new updates)
+(once again, the github file for the manual changes only like once every 2-ish months to accomodate new updates)
 
 https://docs.google.com/document/d/1Is6RJMSgJoywmxb3TRrjtLjSM3Kw9m7u4UYeAFL9NLc/edit?usp=sharing
 
