@@ -9,6 +9,10 @@ https://web.roblox.com/games/6686145546/ODST-Pod-Testing
 
 *Updates*
 
+CREDITS
+
+https://docs.google.com/document/d/1Tp0sooA0_4BG-uEDyFYRYN3vJCApINuVgCWRiq8w5dM/edit?usp=sharing
+
 (the actual updates pdf that is in the files n crap will only change once like every 2-ish months.)
 
 https://docs.google.com/document/d/1UUcicEvMcqDo1F9hY9QWScE8VPLAVlbVjyWg8Uk5J_I/edit?usp=sharing
